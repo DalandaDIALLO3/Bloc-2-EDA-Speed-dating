@@ -5,7 +5,7 @@
 My email : dalanda.diallo@skema.edu  
 Video with explanation :  
 
-I would like to thank Delphine Cesar for her contribution on this project.  
+I would like to thank Delphine César for her contribution on this project.  
 
 
 ## Project 🚧
